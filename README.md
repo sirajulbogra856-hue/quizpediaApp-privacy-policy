@@ -1,0 +1,1 @@
+# quizpediaApp-privacy-policy
