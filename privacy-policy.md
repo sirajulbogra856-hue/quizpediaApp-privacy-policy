@@ -1,4 +1,3 @@
-# Privacy Policy for QuizPedia
 
 **Last Updated:** February 2025  
 **Effective Date:** February 2025  
