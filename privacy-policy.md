@@ -146,7 +146,7 @@ Updates will be posted in the App or on our website.
 If you have questions or concerns, contact us:
 
   Developer: QuizPedia Team
-  Email: your-email@example.com
+  Email: sirajulbogra856@gmail.com
   Country: [Your Country]
 
 
