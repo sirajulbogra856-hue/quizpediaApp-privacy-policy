@@ -1,5 +1,3 @@
-# quizpediaApp-privacy-policy
-
 **Last Updated:** February 2025  
 **Effective Date:** February 2025  
 
